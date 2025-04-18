@@ -17,7 +17,7 @@ Sonamy 4.6/10 i think this is a cuteish ship, but i personally think sonic is to
 
 ✧⁠∘⁠˚⁠˳⁠°✧⁠∘⁠˚⁠˳⁠°✧⁠∘⁠˚⁠˳⁠°✧⁠∘⁠˚⁠˳⁠°✧⁠∘⁠˚⁠˳⁠°✧⁠∘⁠˚⁠˳⁠°✧⁠∘⁠˚⁠˳⁠°✧⁠∘⁠˚⁠˳⁠°✧⁠∘⁠˚⁠˳⁠°✧⁠∘⁠˚⁠˳⁠°
 
-(*) Sonave 1.3/10 their personalties are so different from each other that this would never work. wave cheats, lies, and is rude, while sonic is the exact opposite.
+(**) Sonave 1.3/10 their personalties are so different from each other that this would never work. wave cheats, lies, and is rude, while sonic is the exact opposite.
 
 ✧⁠∘⁠˚⁠˳⁠°✧⁠∘⁠˚⁠˳⁠°✧⁠∘⁠˚⁠˳⁠°✧⁠∘⁠˚⁠˳⁠°✧⁠∘⁠˚⁠˳⁠°✧⁠∘⁠˚⁠˳⁠°✧⁠∘⁠˚⁠˳⁠°✧⁠∘⁠˚⁠˳⁠°✧⁠∘⁠˚⁠˳⁠°✧⁠∘⁠˚⁠˳⁠°
 
